@@ -6,7 +6,7 @@
 It's called Dragonfly 44, and about 99.99% of its mass is invisible. Scientists discovered
 it in 2016 and were shocked because it behaves like a normal galaxy but barely has any stars!
 It’s still a mystery how it formed. 🕵️‍♂️✨(this fact was generetated by AI)
-Now something from me: Generative Ai, like ChatGPT can hallucinate and show incorrect information in very believable way👀.
+- Now something from me: Generative Ai, like ChatGPT can hallucinate and show incorrect information in very believable way👀. Is Dragonfly 44 real?
 
 
 <!---
